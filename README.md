@@ -1,2 +1,0 @@
-# banuu
-home interior design
